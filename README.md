@@ -1,2 +1,3 @@
 Hi,
-this is my first website, for reference i am still in my teen age (yes, i am a kid)
+I am Reyansh Batra,
+this is my first website, for reference I am still in my teenage (yes, I am a kid)
